@@ -1,4 +1,5 @@
 - Hi, you can call me Angelina!
+- Currently in my 1st year of University, studying Computer Engineering
 - You can reach me through my email, angelina.remisio@gmail.com
 - My pronouns are she/her
 - Fun fact, my favourite games are Hollow Knight, Baldur's Gate 3, and Pokemon Ruby!
